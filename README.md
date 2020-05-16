@@ -1,1 +1,1 @@
-http//Site.github.io
+https://bypedroh07.github.io/GamerMobileNews/
